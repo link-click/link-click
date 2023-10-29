@@ -1,9 +1,9 @@
-my name is chia and i like link click, enstars, slasher movies, persona (all games but mostly p2) and more...
+HI IM TIFFany and i REALLY LIKE LINK CLICK!!!!! and other stuff PLEASE TALK TO ME ABOUT MY INTERESTS TEARS UP SNIFFLES SOBS 
 
-you should probably whisper me to get my attention as i'm offtab a lot. i also won't interact first sowwy
+PLEASE WHISPER ME TO INTERACT UNLESS FRIEND BC I MOST LIKELY WONT SEE IT OTHERWISE :( Also i rarely interact first
 
-i will probably be dry/awkward at first, but will eventually warm up if we hang out more.
+KAISHIN DREAMNOTFOUND YURI!!!!!!!
 
-i make kys/kms jokes so iwc if you're sensitive to jokes like that :p
+i love final destination so much oh ym GOD
 
-I LOVE LOVE LOVE FINAL DESTINATION IF YOUVE SEEN ANY OF THE MOVIES OLEASE BMF 
+@twerkfesting is my main github. ^_^
