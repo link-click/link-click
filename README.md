@@ -1,9 +1,5 @@
-HI IM TIFFany and i REALLY LIKE LINK CLICK!!!!! and other stuff PLEASE TALK TO ME ABOUT MY INTERESTS TEARS UP SNIFFLES SOBS 
+Hi im tiffany i like all sorts of stuff you should be my friend heh i dont bite unless you want me to
 
-PLEASE WHISPER ME TO INTERACT UNLESS FRIEND BC I MOST LIKELY WONT SEE IT OTHERWISE :( Also i rarely interact first
+i block freely & my only dni is proshippers / if ure under 14 / BASIC DNI DONT BE A FREAK!!
 
-KAISHIN DREAMNOTFOUND YURI!!!!!!!
-
-i love final destination so much oh ym GOD
-
-@twerkfesting is my main github. ^_^
+i wont interact with you if i dont like you
