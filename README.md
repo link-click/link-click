@@ -1,8 +1,13 @@
-Hi im tiffany i like all sorts of stuff you should be my friend heh i dont bite unless you want me to
+I am tiffany i like many things. You should be my friend!!!! i dont bite unless you want me to >_<
 
-i block freely & my only dni is proshippers / if ure under 14 / BASIC DNI DONT BE A FREAK!!
+DNI LINK CLICK NEWGENS WHO ONLY TALK ABOUT SHIGUANG URE ANNOYING (this is mostly a joke)
 
-i wont interact with you if i dont like you
+talk to me about xia fei and ill love u forever
+
+‎ 
+‎ 
+‎ 
+‎ 
 
 
-if we are ex friends i want nothing to do with you 😬 YOU KNOW WHO YOU ARE!! LEAVE ME ALONE!!!
+dni under 14 , proship
