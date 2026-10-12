@@ -1,9 +1,5 @@
-I am tiffany i like many things. You should be my friend!!!! i dont bite unless you want me to >_<
+<p align="center"> haii i am lana !! she/her plz read my github and int if u like any of my interests !! i don't bite ^w^ psst also read my strawpage
 
-DNI LINK CLICK NEWGENS WHO ONLY TALK ABOUT SHIGUANG URE ANNOYING (this is mostly a joke)
-
-talk to me about xia fei and ill love u forever
-
-‎ ‎ ‎ ‎
-
-dni under 14 , proship
+<p align="center">
+ <img class="one" src="https://files.catbox.moe/b6r30i.gif">
+ </p>
